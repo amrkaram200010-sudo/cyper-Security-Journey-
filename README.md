@@ -1,2 +1,0 @@
-# cyper-Security-Journey-
-Photo 
